@@ -41,9 +41,9 @@ For his International career click [here](https://en.wikipedia.org/wiki/Cristian
 For his career statistics click [here](https://en.wikipedia.org/wiki/Cristiano_Ronaldo#Career_statistics)
 
 
-Content source: wikipedia
+Content [source](https://en.wikipedia.org/wiki/Cristiano_Ronaldo)
 
-My [linkedIn profile](www.linkedin.com/in/chandrakanth-polisetty)
+
 
 
 
