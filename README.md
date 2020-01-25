@@ -35,19 +35,17 @@ Image source: Wallpapercart.com
 
 Image source: junpix.com
 
-For his International career click the link below
+For his International career click [here](https://en.wikipedia.org/wiki/Cristiano_Ronaldo#International_career)
 
-[https://en.wikipedia.org/wiki/Cristiano_Ronaldo#International_career]
 
-For his career statistics click the link below
+For his career statistics click [here](https://en.wikipedia.org/wiki/Cristiano_Ronaldo#Career_statistics)
 
-[https://en.wikipedia.org/wiki/Cristiano_Ronaldo#Career_statistics]
 
 Content source: wikipedia
 
 My linkedIn profile:
 
-[www.linkedin.com/in/chandrakanth-polisetty]
+[www.linkedin.com/in/chandrakanth-polisetty
 
 
 
