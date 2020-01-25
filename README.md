@@ -43,9 +43,8 @@ For his career statistics click [here](https://en.wikipedia.org/wiki/Cristiano_R
 
 Content source: wikipedia
 
-My linkedIn profile:
+My [linkedIn profile](www.linkedin.com/in/chandrakanth-polisetty)
 
-[www.linkedin.com/in/chandrakanth-polisetty
 
 
 
